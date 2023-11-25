@@ -1,0 +1,1 @@
+# MAPA-TEMP-RATURA
